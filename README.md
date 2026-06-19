@@ -1,3 +1,4 @@
+<img width="1949" height="2054" alt="1_4990Axux3_JUEB1usrEPhw" src="https://github.com/user-attachments/assets/376c9bf7-deb4-4d76-8b7f-2c6806ed508a" />
 
 God is dead. Long live AI.
 
